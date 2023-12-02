@@ -1,4 +1,15 @@
 # GenerationPerdus
 
 
-Salut a toi mon modo discord suite a un tiktok j'ai vue des personnes qui se cassais le q pour dire c'est sentiments donc voila comment faire cela en 16 ligne pour etre un vrai modo discord et tout s'eu qui telecharge se programme je vous juge pas mais bon...
+Salut a toi mon modo discord suite a un tiktok,
+j'ai vue des personnes qui se cassais le cue pour dire c'est sentiments.
+Donc voila comment faire tout en étant un vrai puant , 
+
+
+# TUTO
+- Lancer le start.bat pour télécharger et lancer tout se qui faut 
+- ![image](https://github.com/RitoOFF/GenerationPerdus/assets/125696277/18456427-fc51-4afe-b7c2-e0e46b669801)
+
+
+----------------------------------------------------------------------------
+- bonne journée a toi je vous juge énormement s'eu qui download le programmes
