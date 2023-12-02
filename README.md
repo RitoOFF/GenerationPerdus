@@ -8,8 +8,7 @@ Donc voila comment faire tout en étant un vrai puant ,
 
 # TUTO
 - Lancer le start.bat pour télécharger et lancer tout se qui faut 
-- ![image](https://github.com/RitoOFF/GenerationPerdus/assets/125696277/18456427-fc51-4afe-b7c2-e0e46b669801)
-
+ ![image](https://github.com/RitoOFF/GenerationPerdus/assets/125696277/18456427-fc51-4afe-b7c2-e0e46b669801)
 
 ----------------------------------------------------------------------------
 - bonne journée a toi je vous juge énormement s'eu qui download le programmes
