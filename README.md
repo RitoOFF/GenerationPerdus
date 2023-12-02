@@ -3,7 +3,7 @@
 
 Salut a toi mon modo discord suite a un tiktok,
 j'ai vue des personnes qui se cassais le cue pour dire c'est sentiments.
-Donc voila comment faire tout en étant un vrai puant , 
+Donc voila comment faire tout en étant un vrai modo discord ( si votre relation se casse après j'y suis pour rien ) , 
 
 ----------------------------------------------------------------------------
 # TUTO
