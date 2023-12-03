@@ -6,7 +6,7 @@ j'ai vue des personnes qui se cassais le cue pour dire c'est sentiments.
 Donc voila comment faire tout en étant un vrai modo discord ( si votre relation se casse après j'y suis pour rien ) 
 
 
-- Appuyer sur e une fois le programe lancer !
+- Appuyer sur E une fois le programe lancer !
 
 ----------------------------------------------------------------------------
 # TUTO
